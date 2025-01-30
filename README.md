@@ -1,2 +1,2 @@
 # selvasankar.github.io
-Selvasnkar's Homepage
+Selvasankar's Homepage
